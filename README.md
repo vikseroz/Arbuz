@@ -1,0 +1,1 @@
+siemano kolano elo  zelo
